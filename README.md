@@ -14,7 +14,7 @@
                                           17 𝖘𝖍𝖊/𝖙𝖍𝖊𝖞 
                                     𝕮𝖔𝖒𝖕𝖚𝖙𝖊𝖗 𝖘𝖈𝖎𝖊𝖓𝖈𝖊 𝖒𝖆𝖏𝖔𝖗 (almost)
                                      Discord: quanxiswife#1277
-                                         Spotify: junnero 
+                                         VS code user lol 
 
                                                             
                                Ｔｈｉｎｇｓ Ｉ ａｍ ｗｏｒｋｉｎｇ ｏｎ：
