@@ -1,16 +1,13 @@
-### Hi there 👋
-
-<!--
-**junnero/junnero** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                                                                           
+                                                                           
+                                                                           
+                                                                           
+                                                                           
+                                                                           
+                                                                           
+                                                | 𝐝 𝐢 𝐠 𝐢 𝐭 𝐚 𝐥   𝐚 𝐫 𝐜 𝐡 𝐢 𝐯 𝐞 *:･☆  mary! 
+                                                    
+                                                                      
+                                                            welcome to my github!
+                                                            
+                 [IMG_6167](https://user-images.githubusercontent.com/111092162/184335982-b0478db5-5393-4f3f-ad99-d042402ef114.jpg)
